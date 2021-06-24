@@ -1,1 +1,0 @@
-# mynkprtp.github.io
